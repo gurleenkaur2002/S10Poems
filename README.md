@@ -7,6 +7,7 @@ Or let him see that I was scared - a better thought I had,
 I just escaped from where I was and crawled in bed with dad.
 
 Source: https://www.familyfriendpoems.com/poem/being-brave-at-night-by-edgar-albert-guest
+
 One time there was a giant who was horrible to see,
 He had three heads and twenty arms, an' he came after me
 And red hot fire came from his mouths and every hand was red
